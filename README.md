@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @yatakari, you can call me Yata, Khali or simply Yatakari , I have 22 y/o and I'm new into this world
+- 📫 You can reach me on Twitter, or Twitch, the channel is Yatakari. No, english is not my main language, so, have pacience
